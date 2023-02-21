@@ -1,1 +1,1 @@
-![asdf](https://media.giphy.com/media/3o6fJgEOrF1lky8WFa/giphy.gif)
+![](https://github.com/tttmaximttt/tttmaximttt/blob/main/smile-krupovich.gif)
