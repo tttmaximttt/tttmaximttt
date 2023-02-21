@@ -1,1 +1,1 @@
-![orange](https://giphy.com/gifs/endless-rainbow-submission-3o6fJgEOrF1lky8WFa)
+![orange](https://media.giphy.com/media/3o6fJgEOrF1lky8WFa/giphy.gif)
